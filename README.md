@@ -7,6 +7,7 @@ Livetalk allows you to talk and make friends with people from all over the world
 • Featured in Google Play Store in many countries!  
 
 ▷ Discover &amp; Connect! 
+
 Live Talk allows you to meet someone new with a single tap.
 You can easily explore new cultures and people from all over the world. 
 - Meet new people from all over the world through live video calls (using 3G, 4G, Wi-Fi) 
